@@ -1,0 +1,7 @@
+- 👋 Hi everyone, I’m @accelerator9390
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning JavaScript, HTML but mostly html.
+- 💞️ I’m looking to collaborate on not really collabing because im a lil young but ye
+- 📫 How to reach me (idk)
+- 😄 Pronouns: He/him/his
+- ⚡ Fun fact: i use sololearn on the app store to learn to code! Its like duolingo but coding edition.
